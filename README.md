@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **j4cks0np0well@gmail.com**
 
-- ⚡ Fun fact **I don't wear socks**
+- ⚡ Fun fact **see if I can figure this out.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
